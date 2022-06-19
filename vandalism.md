@@ -1,1 +1,0 @@
-NAA was here
